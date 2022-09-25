@@ -10,4 +10,4 @@ Durante la primera sesión se desprende materia fecal normal (aunque pueden desp
 
 Una vez limpio el colon y eliminados los desechos, adherencias y toxinas, hay efectos inmediatos de mejora en el estado general de salud, tanto física como psíquica. Esto se traduce en una sensación de bienestar y libertad, tanto a nivel mental como en la sensación de sentirse cómodo en el propio cuerpo.
 
-Luego de las sesiones se aconseja comer en forma moderada, en especial ensaladas y jugos de vegetale
+Luego de las sesiones se aconseja comer en forma moderada, en especial ensaladas y jugos de vegetales.
