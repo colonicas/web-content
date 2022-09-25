@@ -43,5 +43,3 @@ Si bien es una terapia sin riesgos, en algunos casos recomendamos no realizarla.
 - Embarazo
 - Enfermedad cardíaca grave
 - Cáncer de recto o colon
-
-#contraindicaciones #salud #sesión #terapia #tratamiento
